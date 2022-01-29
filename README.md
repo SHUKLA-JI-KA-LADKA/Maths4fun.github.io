@@ -8,7 +8,7 @@ mainly for the kids of age group of 4 to 5 years of age.
 
 ![image](https://user-images.githubusercontent.com/65447291/151661316-24be1680-397d-4601-8486-ccb75e88b076.png)
 
-![image](https://user-images.githubusercontent.com/65447291/151661337-a49818f0-1f09-4abd-ae51-877354d5399c.png)
+![image](https://user-images.githubusercontent.com/65447291/151661449-d9dd37b2-432d-4c6e-a75c-b5f33f2f4dc5.png)
 
 
 
